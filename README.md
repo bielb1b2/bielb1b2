@@ -1,3 +1,3 @@
 Coding and relaxing 🍸
 
-Day 2🔥
+Day 1🔥
